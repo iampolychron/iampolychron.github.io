@@ -7,4 +7,4 @@
 
 _Have fun checking out my GitHub Pages website!_
 ## iampolychron
-[GitHub Profile](https://github.com/iampolychron)
+[Social and more](https://campsite.bio/iampolychron)
